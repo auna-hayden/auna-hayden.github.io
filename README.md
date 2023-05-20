@@ -1,2 +1,1 @@
-# hayden-auna.github.io
-together forever ;)
+# auna-hayden.github.io
